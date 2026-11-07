@@ -1,6 +1,6 @@
 # M04 · ¿Este título va a la portada del usuario?
 
-**Integrantes:** Grosz Luciana · Casabal vallejo Guadalupe
+**Integrantes:** Grosz Luciana · Casabal Guadalupe
 **IA declarada:** Claude
 **Pista:** Reglas
 **Publicación en LinkedIn:** https://www.linkedin.com/posts/luciana-grosz-737604330_y-si-el-t%C3%ADtulo-m%C3%A1s-clickeable-es-justamente-share-7523366686285312013-B0pL/?highlightedUpdateUrn=urn%3Ali%3Aactivity%3A7523366687010713600&highlightedUpdateType=SOCIAL_SHARE&origin=SOCIAL_SHARE&utm_source=share&utm_medium=member_desktop&rcm=ACoAAFNiJxsBA7dssUpCJRyEJUAAkSvPIwPYrVg
